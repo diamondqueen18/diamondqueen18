@@ -1,0 +1,8 @@
+    - 👋 Hi, I’m @diamondqueen18
+- 👀 I’m interested in coding programs.
+- 🌱 I’m currently learning python.
+- 💞️ I’m looking to collaborate on fun and useful programs.
+- 📫 I have some ways to reach me below if you would like.
+- Discord: @diamond_queen1
+- Telegram: @diamond_queen1
+- My email: zlmurrow@gmail.com
